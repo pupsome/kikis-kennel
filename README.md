@@ -36,11 +36,6 @@ personal favorites/me core >> <img width="66" height="26" alt="x" src="https://g
 
 <br>
 
-also i dont care enough to fix the sizes this is my shit collection anyway
-lll probably info dump here so um. idk look out for red flgs i guess
-
-<br>
-
 <img width="150" height="30" alt="s" src="https://github.com/user-attachments/assets/32bf4c8c-1c16-4c94-a3c4-2f379335103b" />
 <img width="150" height="30" alt="o" src="https://github.com/user-attachments/assets/f07d11d3-1617-42e7-b579-0455b38832e4" />
 <img width="150" height="30" alt="n" src="https://github.com/user-attachments/assets/d0fe1b35-d571-4e02-8766-fdc4598028f2" />
