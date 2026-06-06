@@ -32,7 +32,7 @@ personal favorites/me core >> <img width="66" height="26" alt="x" src="https://g
 
 <br>
 
-<img width="250" height="60" alt="v" src="https://github.com/user-attachments/assets/a4fb845f-21b6-4d9d-93a2-448da303302c" /> giys look its mi rbrother my big brother gorou <<<< wooow waw
+<img width="250" height="60" alt="v" src="https://github.com/user-attachments/assets/caa62667-8fdc-4f50-b888-5dec191859d8" /> giys look its mi rbrother my big brother gorou <<<< wooow waw
 
 <br>
 
