@@ -1,11 +1,11 @@
+# my big fat collection of blinkies and buttons and stamps and stuff i like 
 <img width="150" height="20" alt="16" src="https://github.com/user-attachments/assets/e3e32977-d30d-4ff1-a507-f36706969262" /> <img width="66" height="26" alt="y" src="https://github.com/user-attachments/assets/5d1e02dd-2f4e-4044-ac06-8c534e9bfd72" /> <img width="150" height="20" alt="1" src="https://github.com/user-attachments/assets/3468c98e-bee2-4468-a4eb-af13837f8150" />
 <img width="150" height="30" alt="u" src="https://github.com/user-attachments/assets/9ac6e1b5-ef9c-4d15-8461-32cf75cea1e6" />
 <img width="150" height="30" alt="t" src="https://github.com/user-attachments/assets/0a9c94dc-69b5-4e99-9d79-4581ddaed4c6" />
 <img width="150" height="30" alt="r" src="https://github.com/user-attachments/assets/878dc81c-8cb5-406e-8a12-e46f8e7b65ac" />
 <img width="150" height="30" alt="q" src="https://github.com/user-attachments/assets/fba8728a-ebb8-4b41-b189-e804e8d9fc52" />
 
-
-my big fat collection of blinkies and buttons and stamps and stuff i like
+<img width="250" height="60" alt="v" src="https://github.com/user-attachments/assets/caa62667-8fdc-4f50-b888-5dec191859d8" />
 
 custom mades :3 >>> <img width="78" height="18" alt="8" src="https://github.com/user-attachments/assets/4ad51383-70a1-4151-b3ef-1e11e806d230" />
 <img width="78" height="18" alt="7" src="https://github.com/user-attachments/assets/e62df067-c4cd-4256-85b3-5b5f4ff31e86" />
@@ -15,6 +15,7 @@ custom mades :3 >>> <img width="78" height="18" alt="8" src="https://github.com/
 <img width="78" height="18" alt="3" src="https://github.com/user-attachments/assets/2ebd3440-b18e-4223-9210-4eff909b7de8" />
 <img width="78" height="18" alt="2" src="https://github.com/user-attachments/assets/80c5cef0-6cc1-41df-9b6a-b8b409237a1f" />
 <img width="78" height="18" alt="1" src="https://github.com/user-attachments/assets/a5809d70-1e3c-4a99-9628-ab7eec1d092d" />
+
 
 personal favorites/me core >> <img width="66" height="26" alt="x" src="https://github.com/user-attachments/assets/0c1b8202-c5ee-43d0-984b-5b71c5911142" /> <img width="150" height="20" alt="2" src="https://github.com/user-attachments/assets/43ccd98a-fd12-4345-b109-14adeaf15f4f" />
  <img width="150" height="20" alt="8" src="https://github.com/user-attachments/assets/ab35d72b-6a60-4b01-947f-c8105fc61943" />
@@ -28,11 +29,6 @@ personal favorites/me core >> <img width="66" height="26" alt="x" src="https://g
 <img width="66" height="26" alt="b" src="https://github.com/user-attachments/assets/95d67d41-cf3c-4a26-8151-b7d889cec2f2" />
 <img width="66" height="26" alt="a" src="https://github.com/user-attachments/assets/6790ee5f-fdef-4976-8558-8cb8f48d9f0f" />
 <img width="66" height="26" alt="2" src="https://github.com/user-attachments/assets/a98772ee-89f4-4ff7-83fd-5e7112e51eab" />
-
-
-<br>
-
-<img width="250" height="60" alt="v" src="https://github.com/user-attachments/assets/caa62667-8fdc-4f50-b888-5dec191859d8" /> giys look its mi rbrother my big brother gorou <<<< wooow waw
 
 <br>
 
